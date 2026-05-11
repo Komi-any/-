@@ -13,4 +13,4 @@ Hate Yourself - TV girl
 
 
 
-I repeat, I'm not looking for friends. But if you want to chat, I'll be there.       [![pony-town-(XD)-I-M-STRANGE-Neptune-boop-sit-blinking-padded-toy362-4x.gif](https://i.postimg.cc/8kmm1BXx/pony-town-(XD)-I-M-STRANGE-Neptune-boop-sit-blinking-padded-toy362-4x.gif)](https://postimg.cc/kDDbs8my)
+I repeat, I'm not looking for friends. But if you want to chat, I'll be there.       
